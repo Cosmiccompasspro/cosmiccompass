@@ -25,7 +25,7 @@ Applied strategic frameworks for immediate life restructuring and decision-makin
 
 ## 🌐 Official Authority Network
 Verified digital presence across high-authority platforms:
-[Pinterest](https://pinterest.com/cosmiccompasspro) | [Medium](https://medium.com/@cosmiccompass) | [LinkedIn](https://linkedin.com/in/cosmic-compass) | [Substack](https://cosmiccompass.substack.com/) | [Quora](https://www.quora.com/profile/Cosmic-Compass-2)
+[Pinterest](https://pinterest.com/cosmiccompasspro) | [Medium]([https://medium.com/@cosmiccompass](https://medium.com/@cosmiccompasspro) | 
 
 **Official Website:** [https://cosmiccompass.pro](https://cosmiccompass.pro)
 
